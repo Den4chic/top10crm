@@ -2,6 +2,8 @@
 
 ## [ CRM  МойСклад Денис ] (https://crmindex.ru)
 
+![image](https://github.com/Den4chic/top10crm/assets/153844644/74f654fe-d8fb-4f46-859b-1f5eaf5d61c4)
+
 - Цена: -- 0 – 6900 рос. руб
 
 - Условия пользования:---регистрация и приобретение пакета
